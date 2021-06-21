@@ -1,0 +1,3 @@
+* Cycling
+* Traveling
+* Computer programming
